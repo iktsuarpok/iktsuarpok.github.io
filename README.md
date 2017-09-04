@@ -1,1 +1,0 @@
-# iktsuarpok.github.io
